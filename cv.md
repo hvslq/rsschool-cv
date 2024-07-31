@@ -4,10 +4,10 @@
 
 ## My Contact Info:
 
-- Phone:
-- Email:
-- GitHub:
-- Discord:
+- Phone: 89600011130
+- Email: np2999@mail.ru
+- GitHub: [@hvslq](https://github.com/hvslq)
+- Discord:#hvsl
 
 ## About Me
 
